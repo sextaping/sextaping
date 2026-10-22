@@ -7,4 +7,4 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://pinkcellphone.atabook.org">𝒂𝒕𝒂𝒃𝒐𝒐𝒌
 
-<a href="https://ibb.co/G4h5ysP4"><img src="https://i.ibb.co/hJqmbX8J/Untitled70-20260920220814.png" alt="Untitled70-20260920220814" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'>
+<a href="https://ibb.co/bMqCWkwb"><img src="https://i.ibb.co/B5dQz9Wn/Untitled77-20261023033122.png" alt="Untitled77-20261023033122" border="0"></a>
