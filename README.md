@@ -9,7 +9,6 @@
 
 <a href="https://ibb.co/bMqCWkwb"><img src="https://i.ibb.co/B5dQz9Wn/Untitled77-20261023033122.png" alt="Untitled77-20261023033122" border="0"></a>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ
 <details>
   <summary>𝓐wards ✿</summary>
-  <p>ㅤㅤㅤㅤㅤㅤㅤ꒰১ big thanks to ໒꒱ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ<a href="https://github.com/music-town">@music-town</a></p>
+  <p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ꒰১ big thanks to ໒꒱ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ<a href="https://github.com/music-town">@music-town</a></p>
