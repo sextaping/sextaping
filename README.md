@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=RadiantCity&color=ffb7ce&style=plastic&base=1000&label=𝓢extape's+໒꒱)
+
 ㅤㅤㅤ𝓢pam 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝓕ollowing
 
