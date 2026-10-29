@@ -11,6 +11,12 @@
 <a href="https://pinkcellphone.atabook.org">𝒂𝒕𝒂𝒃𝒐𝒐𝒌
 
 <a href="https://ibb.co/bMqCWkwb"><img src="https://i.ibb.co/B5dQz9Wn/Untitled77-20261023033122.png" alt="Untitled77-20261023033122" border="0"></a>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31hlastlbtwwivooeottghfrzanu&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=ffc4d7&bar_color_cover=false">
+  </a>
+</p>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ
 <details>
   <summary>𝓐wards ✿</summary>
