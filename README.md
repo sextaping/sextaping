@@ -20,4 +20,4 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ
 <details>
   <summary>𝓐wards ✿</summary>
-  <p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ꒰১ big thanks to ໒꒱ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ<a href="https://github.com/music-town">@music-town</a></p>
+  <p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ꒰১ big thanks to ໒꒱ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ<a href="https://github.com/music-town">@music-town <a href="https://github.com/pt-everypony">@pt-everypony</a></p>
