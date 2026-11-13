@@ -21,9 +21,9 @@
 
 <p>
 <em>†††</em>　::ㅤ
-avokado 𖹭ㅤ
-éléa 𖹭ㅤ
 polly 𖹭ㅤ
+éléa 𖹭ㅤ
+avokado 𖹭ㅤ
 <a href="https://github.com/wes-borland">chris 𖹭</a>ㅤ
 <a href="https://github.com/youryummyyummymetalhead">salt 𖹭</a>ㅤ
 <a href="https://github.com/newestalbum">jules 𖹭</a>ㅤ
