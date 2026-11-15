@@ -6,7 +6,7 @@
 <summary>ㅤㅤ</summary>
 
 <p>
-<em>ᯠ ⑅ ᯄ</em>　::ㅤ
+<em>ᯠ ⑅ ᯄ</em>　::
 <a href="https://github.com/music-town">music</a>ㅤ
 <a href="https://github.com/Knox-Event">knox</a>ㅤ
 <a href="https://github.com/THE-TEMPIST">tempist</a>ㅤ
@@ -14,13 +14,13 @@
 </p>
 
 <p>
-<em>𝓞omfs ₊⊹</em>　::ㅤ
+<em>𝓞omfs ₊⊹</em>　::
 <a href="https://github.com/infinitesources">𑣲 infinite</a>ㅤ
 <a href="https://github.com/slpyJJ">𑣲 jj</a>
 </p>
 
 <p>
-<em>†††</em>　::ㅤ
+<em>†††</em>　::
 dannie 𖹭ㅤ
 polly 𖹭ㅤ
 éléa 𖹭ㅤ
