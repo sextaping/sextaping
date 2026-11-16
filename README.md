@@ -15,8 +15,8 @@
 
 <p>
 <em>𝓞omfs ₊⊹</em>　::
-<a href="https://github.com/infinitesources">𑣲 infinite</a>ㅤ
-<a href="https://github.com/slpyJJ">𑣲 jj</a>
+<a href="https://github.com/infinitesources">𑣲 salmon</a>ㅤ
+<a href="https://github.com/slpyJJ">𑣲 jj</a>ㅤ
 </p>
 
 <p>
@@ -29,7 +29,8 @@ avokado 𖹭ㅤ
 <a href="https://github.com/youryummyyummymetalhead">salt 𖹭</a>ㅤ
 <a href="https://github.com/Ra1ndt">rain 𖹭</a>ㅤ
 <a href="https://github.com/newestalbum">jules 𖹭</a>ㅤ
-<a href="https://github.com/EternalFates">sal 𖹭</a>
+<a href="https://github.com/EternalFates">sal 𖹭</a>ㅤ
+<a href="https://github.com/NikaMokochi">nika 𖹭
 </p>
 
 </details>
