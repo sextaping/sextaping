@@ -17,11 +17,13 @@
 <em>𝓞omfs ₊⊹</em>　::
 <a href="https://github.com/infinitesources">𑣲 salmon</a>ㅤ
 <a href="https://github.com/slpyJJ">𑣲 jj</a>ㅤ
+<a href="https://github.com/NikaMokochi">𑣲 nika
 </p>
 
 <p>
 <em>†††</em>　::
-dannie 𖹭ㅤ
+kuru 𖹭ㅤ
+danny 𖹭ㅤ
 polly 𖹭ㅤ
 éléa 𖹭ㅤ
 avokado 𖹭ㅤ
@@ -29,8 +31,6 @@ avokado 𖹭ㅤ
 <a href="https://github.com/youryummyyummymetalhead">salt 𖹭</a>ㅤ
 <a href="https://github.com/Ra1ndt">rain 𖹭</a>ㅤ
 <a href="https://github.com/newestalbum">jules 𖹭</a>ㅤ
-<a href="https://github.com/EternalFates">sal 𖹭</a>ㅤ
-<a href="https://github.com/NikaMokochi">nika 𖹭
-</p>
+<a href="https://github.com/EternalFates">sal 𖹭</a>ㅤ</p>
 
 </details>
