@@ -1,10 +1,11 @@
-ㅤㅤㅤㅤㅤㅤㅤ ㅤ<sub>‘ㅤ‘ㅤ𝓢𝓸𝓶𝓮𝓽𝓱𝓲𝓷𝓰 𝓱𝓮𝓪𝓿𝓮𝓷𝓵𝔂 𝓵𝓮𝓭 𝓶𝓮 𝓽𝓸 𝔂𝓸𝓾ㅤ‚ㅤ‚</sub>ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<a href="https://ibb.co/8n7448vh"><img src="https://i.ibb.co/4wVggNvQ/Untitled87-20261111035010.png" alt="Untitled87-20261111035010" border="0"></a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<a href="https://ibb.co/hR9nGfy9"><img src="https://i.ibb.co/27hLzNyh/Untitled16-20261120040759.png" alt="Untitled16-20261120040759" border="0"></a>
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![ata](https://img.shields.io/badge/ata-FFB7CE?style=plastic)](https://pinkcellphone.atabook.org)&nbsp;&nbsp;&nbsp;&nbsp;
 [![straw](https://img.shields.io/badge/straw-FFB7CE?style=plastic)](https://pinkmaggit.straw.page)
 <details>
 <summary>ㅤㅤ</summary>
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p>
 <em><sub>ᯠ ⑅ ᯄ</sub></em><sub>　::　</sub>
 <a href="https://github.com/music-town"><sub>music</sub></a>ㅤ
