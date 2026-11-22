@@ -1,6 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<a href="https://ibb.co/hR9nGfy9"><img src="https://i.ibb.co/27hLzNyh/Untitled16-20261120040759.png" alt="Untitled16-20261120040759" border="0"></a>
-
+<a href="https://ibb.co/Y4mG1y6s"><img src="https://i.ibb.co/hxbv4Zkz/Untitled16-20261122201308.png" alt="Untitled16-20261122201308" border="0"></a><br />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![ata](https://img.shields.io/badge/fluff-FFB7CE?style=plastic)](https://fluffle.cc/sextapes)&nbsp;&nbsp;&nbsp;&nbsp;[![ata](https://img.shields.io/badge/ata-FFB7CE?style=plastic)](https://pinkcellphone.atabook.org)&nbsp;&nbsp;&nbsp;&nbsp;
 [![straw](https://img.shields.io/badge/straw-FFB7CE?style=plastic)](https://pinkmaggit.straw.page)
 <details>
