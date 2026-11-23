@@ -12,7 +12,9 @@
 <a href="https://github.com/music-town"><em><sub>music</sub></em></a>ㅤ
 <a href="https://github.com/Knox-Event"><em><sub>knox</sub></em></a>ㅤ
 <a href="https://github.com/THE-TEMPIST"><em><sub>tempist</sub></em></a>ㅤ
-<a href="https://github.com/pt-everypony"><em><sub>everypony</sub></em></a>
+<a href="https://github.com/pt-everypony"><em><sub>everypony</sub></em></a>ㅤ
+<a href="https://github.com/piddlesjet"><em><sub>piddles</sub></em></a>ㅤ
+<a href="https://github.com/marvelous-pt"><em><sub>marvelous</sub></em></a>ㅤ
 </p>
 
 <p>
